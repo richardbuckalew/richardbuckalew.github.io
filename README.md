@@ -1,1 +1,0 @@
-# richardbuckalew.github.io
